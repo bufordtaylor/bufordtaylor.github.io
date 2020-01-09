@@ -7,15 +7,16 @@
 - catch up with friends in Tokyo. One of them is a big fan of whiskey and we'll visit the Tokyo Whiskey Library.
 
 ##### Evening
-*Note: my friend and her mom are visiting Japan for the first time and I agreed to show them around. They will land and take a nap first and will stay in Shibuya.*
+*Note: my friend and her mom are visiting Japan for the first time and I agreed to show them around. They will land afternoon.*
 
 - [Kaiten Sushi](https://i.imgur.com/qfb5lbZ.png) @ Katsumidori Sushi
+- Night drinks TBD depending on their jetlag
 
 #### Feb 23 Mon: Being A Tour Guide - (West Tokyo)
 
 The main walking route will be walk from Dogenzaka to Yoyogi to Harajuku, break for dinner and then night bamboozle in Shinjuku. With stops by these places:
 
-- Tower Records. Probably won't stay long, but my friend is a music nut and needs a selfie here.
+- Tower Records. Probably won't stay long, but selfies.
 - Sebastian for its [amazeballs dolce ice shop](https://i.imgur.com/dIFtyFc.png) https://goo.gl/maps/E7v5AsLKy2ViXgso6
 - Extremely [fancy coffee](https://i.imgur.com/RyVJ0lA.png) @ Rostro https://goo.gl/maps/TdFkvkFQVyc6Jk8d6
 - [Meiji Jingu Shrine](https://www.japan-guide.com/g18/3002_01.jpg)
