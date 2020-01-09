@@ -1,16 +1,11 @@
 #### Feb 22 Sun: Local and Touring Friends
 
-##### Morning/Afternoon
--[] maybe a sumo tour: https://japanwondertravel.com/products/sumo-tour
-
-- Michelin-rated [Ramen @ Nakiryu](https://lh3.googleusercontent.com/V3VMgthJpcLMRbkjLEpwJqqHSaLU8uxjA7hdTVhNg-GB6WeUJUwDEk3fzLEHSUJfd0D22H4Xp1jn2wvbtl16z44o229SvSmq6YStQkjtG5lMzmAEMuGrT-1QVxCyDkRoNXLur5njaanS5ABbdAVmc0dXLQS851H9aM6aAJrnoyn5lYZ4Dsi98_g28aCcn11kUMW56ntfRQDKcOqIV6upyosfsV3qeOM9KMJ_0zdgiB54ixD8yJPTks5PpLSNXMRxx5UBTV50Ee28f-HakzFvmRVGP4cu3h_cZPkjqCjRZGzzJx52wTFn1DLkvjIiNsT_BMgivbg4ADOu2xoKxCANNMxlP0C9v0UYZsOxrZ4q5Ugvtu4EA2VBWPju_0Q8vaSxPVoXwP5rLedXC22l9_LiSKLkLkAVW-CWmGLhhS4APTULTohfNqXBmmKyOnmllY8VWQh7hKG3Y1wRHixToH_bNoRXTk8BHtkzHoOY7UW7rFtAcl6ZQEjGV0M2yWUOSFIf6cjL15u0mgZqjabngqQH7bkFhj6o_uBhQxYoXb2050lhIJichnVViL3Typ3AsOPDPskdRC4YTGgGtNGH0cwCyW5-IbRws0mz7fvDHmBxA5Can55dcpEhet9SLEgALZJXnBVee5BOYBU2fON57uAcfKTzNlQh0Sa5=w374-h211-no)
-- catch up with friends in Tokyo. One of them is a big fan of whiskey and we'll visit the Tokyo Whiskey Library.
-
 ##### Evening
 *Note: my friend and her mom are visiting Japan for the first time and I agreed to show them around. They will land afternoon.*
 
+- Conbini tour
 - [Kaiten Sushi](https://i.imgur.com/qfb5lbZ.png) @ Katsumidori Sushi
-- Night drinks TBD depending on their jetlag
+- Night drinks TBD depending on their jetlag. Tokyo Whiskey Library.
 
 #### Feb 23 Mon: Being A Tour Guide - (West Tokyo)
 
